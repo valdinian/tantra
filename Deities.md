@@ -1,0 +1,3 @@
+## Buddhist
+[[acala]]
+[[Prajñāpāramitā]]

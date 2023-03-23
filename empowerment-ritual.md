@@ -1,0 +1,9 @@
+vs [[initiation-ritual]]
+***
+The were many variations, but the purpose of these ceremonies was to advance a sorcerer (male or female) to a higher level and enable them to gain mastery of certain "siddhis," or magical powers. For a more complete description, please read [Women in Early Śākta Tantras: Dūtī, Yoginī and Sādhakī, by Judit Törzsök](https://www.reddit.com/r/realtantra/comments/m441p7/women_in_early_sakta_tantras_duti_yogini_and/) and David Gorden White's Kiss of the Yogini. But, in brief, empowerment ceremonies generally featured only one active couple, a sādhaka or sādhaki (adept) and a dūtī or śakti (consort or ritual partner), or sometimes a sādhaka and a sādhaki (male and female adepts). In the case of a male adept and female consort, the consort is brought to an intense orgasm and...
+
+> The appropriate mantras, representing the pantheon, should be placed on her genitals at the time of orgasm (kṣobha). She must also have her period, in order to produce the required substances.
+
+> After ritual intercourse, the practitioner must wash the śakti’s genitals and gather the liquid in a receptacle. The fluids would be mixed with wine (and sometimes other ingredients) to make a powerful magical elixir called the 'secret nectar' (guhyāmr̥ ta, often called "amrita" in Western sources).
+
+Depending on the ritual, this elixir might then be mixed with rice. Either way, it would then be divided into three parts, one offered to the god or goddess or their avatars in the fire and one drunk or eaten by each person. This was believed to generate great magical power for use in the next stage of the ritual, which would be specific to the particular advancement or siddhi being pursued.

@@ -1,0 +1,2 @@
+Skt. [*padma*](https://en.wiktionary.org/wiki/%E0%A4%AA%E0%A4%A6%E0%A5%8D%E0%A4%AE#Sanskrit) "Lotus"
+Tib. [པདྨ།](https://en.wiktionary.org/wiki/%E0%BD%94%E0%BD%91%E0%BE%A8#Tibetan) [[pɛma](http://ipa-reader.xyz/?text=p%C9%9Bma&voice=Brian)] "Lotus"

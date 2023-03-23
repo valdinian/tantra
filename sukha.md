@@ -1,0 +1,1 @@
+[सुख](https://en.wikipedia.org/wiki/Sukha)

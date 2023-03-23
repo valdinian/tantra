@@ -1,0 +1,1 @@
+An ancient commentator of [[📕Caṇḍa­mahā­roṣaṇa-tantra]]

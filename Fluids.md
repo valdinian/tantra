@@ -1,0 +1,10 @@
+[[substances]]
+***
+- [[wash-water]]
+	- [[mouth-wash-water]]
+	- [[lotus-wash-water]]
+	- [[anus-wash-water]]
+- [[menses]]
+- [[phlegm]]
+- [[urine]]
+- [[feces]]
